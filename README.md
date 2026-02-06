@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a Creative Technologist working in Singapore. Over the past 16 years, I've worked in various areas of design and tech. I'm proud to have worn many hats.<br>These days, I am still focused on bridging the gap between design and tech by using AI
+I'm a Creative Technologist working in Singapore. Over the past 7 years, I've worked in various areas of design and tech. I'm proud to have worn many hats.<br>These days, I am still focused on bridging the gap between design and tech by using AI
 
 
 ## 🌐 Socials:
